@@ -68,4 +68,4 @@ How long does woofing take?
 Do we give Support?
 > Yes! We will help you until you are unbanned.
 
-More questions? We would like to answer them, open a Ticket at our Discord https://spoofer.fun/dc
+
